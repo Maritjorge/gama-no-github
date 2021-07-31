@@ -1,0 +1,1 @@
+Ate agora tenho gostado muito do curso, aprendi bastante coisa nova e foi otimo poder relembrar e aprender direito outras coisas que eu ja aprendi no passado!
